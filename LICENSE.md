@@ -1,4 +1,4 @@
-# 
+# premium deribit trading bot addons is the best deribit trading bot addons with price-monitoring and scalping. Safe, reliable, and optimized for CEX, DEX, and algorithmic trading
 
 
 
